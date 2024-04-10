@@ -1,0 +1,4 @@
+- Hello there, we are Agetone-Systems, IT Consultation Group
+- We offer entreprise tech solutions not leaving behind individual consumer needs 
+- We are currently located in Nairobi but soon branches will be available in South Africa and West African countries, Amazing!
+- Serving Africa's Technological Needs.
